@@ -1,1 +1,1 @@
-I know python and am learning c++. 1st Year uni student, going into 2nd year in september.
+I know python and am learning c++. 2nd Year uni student.
